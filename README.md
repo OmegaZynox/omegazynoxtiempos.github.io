@@ -1,0 +1,1 @@
+# omegazynoxtiempos.github.io

@@ -1,1 +1,1 @@
-# omegazynoxtiempos.github.io
+# omegazynoxtiempos
